@@ -1,0 +1,1 @@
+# portofoliorevaguslianian_analis
